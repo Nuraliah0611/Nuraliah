@@ -1,2 +1,0 @@
-# Nuraliah
-Link program (codingan)
